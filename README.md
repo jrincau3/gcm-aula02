@@ -2,7 +2,7 @@
 
 Nivea Stelmann
 
-Carolina Dieckmann
+Luciano Huck
 
 Patricia de Sabrit
 
